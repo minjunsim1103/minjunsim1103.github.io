@@ -1,1 +1,0 @@
-# minjunsim1103.github.io
